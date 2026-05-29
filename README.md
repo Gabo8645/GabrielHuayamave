@@ -1,2 +1,2 @@
 # GabrielHuayamave
-Agile Transformation &amp; Digital Innovation Leader portfolio
+Agile Transformation &amp; Digital Innovation Leader
